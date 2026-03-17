@@ -1,0 +1,2 @@
+# MacromediaStudio8Keygen
+yes
